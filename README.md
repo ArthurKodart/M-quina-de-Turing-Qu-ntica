@@ -1,0 +1,1 @@
+# M-quina-de-Turing-Qu-ntica
